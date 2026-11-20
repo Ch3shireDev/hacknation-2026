@@ -1,0 +1,3 @@
+# #INVESTWATCH – NA STRAŻY INWESTORÓW! - URZĄD KOMISJI NADZORU FINANSOWEGO
+
+Czy reklama zachęcająca do inwestowania informuje o ryzyku z nim związanym? Czy jasno wskazuje, kto ją publikuje, w jakim celu i dla kogo to robi? Czy oferuje „wsparcie w podejmowaniu decyzji inwestycyjnych lub zarządzaniu majątkiem”, a może nakłania do konkretnej inwestycji? Kto stoi za tym przekazem – licencjonowany podmiot czy „anonimowy pośrednik” posługujący się linkiem afiliacyjnym? Czy pod płaszczem „edukacji finansowej” nie kryje się sprzedaż konkretnego produktu inwestycyjnego lub zarządzania aktywami? Wspólnie rzućmy światło na internetowe treści zachęcające do inwestowania, by zwiększyć świadomość inwestycyjną i bezpieczeństwo uczestników rynku.
